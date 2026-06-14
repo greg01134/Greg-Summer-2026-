@@ -1,0 +1,2 @@
+
+My name is Greg Gaines and I am pursuing my B.S. in Computing Applications. I currently reside in Midland, TX with my family, where I work as a General Manager and Personal Trainer at a local gym. The reason why I am pursuing this degree program is to further enhance my skills and provide additional income for my family. 
